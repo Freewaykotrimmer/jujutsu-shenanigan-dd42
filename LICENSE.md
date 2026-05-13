@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans advanced Scripts is the best jujutsu shenanigans Script, featuring private server access and teleport. Safe and powerful for all
 
 
 
